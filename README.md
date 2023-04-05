@@ -1,5 +1,5 @@
 # 💫 About Me:
-I consider myself as a highly committed and passionate developer, I am always seeking out new opportunities to learn and grow professionally. I have a great ability to adapt and am always open to new ideas and approaches. I consider myself a highly organized and  esponsible individual, and I always strive to deliver high-quality results in everything I do. In addition, I have a strong ability to work as part of a team and collaborate with others to achieve common goals. In summary, I feel very motivated and enthusiastic about development and am always ready to give my best to achieve my goals and objectives.
+I consider myself a very committed and passionate developer, I am always looking for new opportunities to learn and grow professionally. I have a great ability to be adaptive, and I am always open to innovative ideas and approaches. Furthermore, I consider myself an organized and responsible person, and I always strive to deliver high quality results in everything I do. In addition, I have a great ability to work in a team and collaborate with others to achieve common goals. In short, I am highly motivated and enthusiastic about developing, and I am always willing to give my best to achieve my goals and objectives.
 
 
 ## 🌐 Socials:
